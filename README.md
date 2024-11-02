@@ -22,3 +22,6 @@
 [![](https://visitcount.itsvg.in/api?id=mayankvya&icon=0&color=0)](https://visitcount.itsvg.in)
 
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
+
+---
+[![An image of @mudasirmurtaza's Holopin badges, which is a link to view their full Holopin profile](https://www.holopin.io/@mayankvya#badges)](https://holopin.io/@mayankvya)

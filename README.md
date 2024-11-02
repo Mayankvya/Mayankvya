@@ -24,4 +24,4 @@
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
 
 ---
-[![An image of @mudasirmurtaza's Holopin badges, which is a link to view their full Holopin profile](https://www.holopin.io/@mayankvya#badges)](https://holopin.io/@mayankvya)
+[![An image of @mayankvya's Holopin badges, which is a link to view their full Holopin profile](https://holopin.me/mayankvya)](https://holopin.io/@mayankvya)
